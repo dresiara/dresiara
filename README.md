@@ -1,4 +1,3 @@
-yo im sua 
+yo 
 
-
-47 for life
+474747
